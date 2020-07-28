@@ -1,6 +1,6 @@
 # Novidades
 
- Agora no Bed Wars, Teremos Uma Grande Update Que Já Vai Sair! 
+ :gear: Agora no Bed Wars, Teremos Uma Grande Update Que Já Vai Sair! 
 
  Adições: :dart: 
 
